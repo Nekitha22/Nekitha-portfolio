@@ -3,7 +3,7 @@
 
 ---
 
-### Made with ❤️ by [Shaif Arfan](https://www.instagram.com/shaifarfan08/)
+### Made with ❤️ by [Nekitha ]
 
 Like my works and want to support me?
 
